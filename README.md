@@ -3,6 +3,8 @@
 
 Leaf Village: Escanor, Tatsumaki, Benimaru, Gojo, Dio, Business Man
 
+Marine: Escanor, Benimaru, Rimuru, Business Man
+
 ------------Story Stages------------
 
 Hollow Palace Act 5: Escanor, Frieren, Vice Captian, Dio
