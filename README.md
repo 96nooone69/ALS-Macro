@@ -7,7 +7,7 @@ Hell: Escanor, Benimaru, Rimuru, Business Man
 
 Snowy: Escanor, Benimaru, Rimuru, Business Man
 
-Leaf Village: Escanor, Benimaru, Tatsumaki,Rimuru, Gojo, Business Man
+Leaf Village: Escanor, Benimaru, Tatsumaki, Rimuru, Gojo, Business Man
 
 ------------Story Stages------------
 
