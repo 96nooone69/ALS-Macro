@@ -29,5 +29,5 @@ Slime: Escanor, Hashirama, Gyro, Ulquiorra, Tatsumaki, Business Man
 
 ------------Legend Stages------------
 
-Shibuya: 
+Shibuya: Escanor, Frieren, Tatsumaki, Gojo, Rimuru, Business Man
 
