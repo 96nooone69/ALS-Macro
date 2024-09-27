@@ -1,9 +1,13 @@
 
 ------------RAIDS------------
 
-Leaf Village: Escanor, Tatsumaki, Benimaru, Gojo, Dio, Business Man
-
 Marine: Escanor, Benimaru, Rimuru, Business Man
+
+Hell: Escanor, Benimaru, Rimuru, Business Man
+
+Snowy: Escanor, Benimaru, Rimuru, Business Man
+
+Leaf Village: Escanor, Benimaru, Tatsumaki,Rimuru, Gojo, Business Man
 
 ------------Story Stages------------
 
