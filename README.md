@@ -9,7 +9,7 @@ Hollow Palace Act 5: Escanor, Frieren, Vice Captian, Dio
 
 Moriah Act 6: Escanor, Rengoku 
 
-------------Legend Stages------------
+------------Caverns------------
 
 Water Cavern: 
 
@@ -27,5 +27,7 @@ Summer: Escanor, Dio, Guts, Tatsumaki, Benimaru, Idol
 
 Slime: Escanor, Hashirama, Gyro, Ulquiorra, Tatsumaki, Business Man 
 
-------------Caverns------------
+------------Legend Stages------------
+
+Shibuya: 
 
