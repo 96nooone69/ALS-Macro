@@ -31,7 +31,7 @@ Dark Cavern: Escanor, Dio, Tatsumaki, Frieren Gojo, Bussiness Man
 
 Summer: Escanor, Dio, Guts, Tatsumaki, Benimaru, Idol 
 
-Slime: Escanor, Hashirama, Gyro, Ulquiorra, Tatsumaki, Business Man 
+Slime: Escanor, Hashirama, Rimuru, Ulquiorra, Tatsumaki, Business Man 
 
 ------------Legend Stages------------
 
