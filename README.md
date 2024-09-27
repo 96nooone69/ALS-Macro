@@ -33,9 +33,9 @@ Summer: Escanor, Dio, Guts, Tatsumaki, Benimaru, Idol
 
 Slime: Escanor, Hashirama, Rimuru, Ulquiorra, Tatsumaki, Business Man 
 
-Moriah: Escanor, Benimaru, Tatsumaki, Gojo, Rimuru, Business Man
-
 ------------Legend Stages------------
 
 Shibuya: Escanor, Frieren, Tatsumaki, Gojo, Rimuru, Business Man
+
+Moriah: Escanor, Benimaru, Tatsumaki, Gojo, Rimuru, Business Man
 
